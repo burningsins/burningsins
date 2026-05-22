@@ -26,6 +26,4 @@ Not to be rude or something, but better we don't interact for mutual comfort. So
 
 ![](https://img.sanishtech.com/u/37fe7b851dedf2a18e49db2c216f3a31.jpg)
 
-Hey, if u want to know more.. maybe u can read my strawpage, hohoho! and yeah i almost forgot, i love Friede from Pokemon Horizons ..just that, have a nice day and thank youu!
-
-also hii <a href="https://github.com/ucuupp" target="_blank">кυяσσ</a> !! it's my second acc! just that, haha yeah... alr alr i'll stop typing, adios!
+Hey, if u want to know more.. maybe u can read my strawpage, hohoho! and yeah i almost forgot, i love Friede from Pokemon Horizons .. also hii <a href="https://github.com/ucuupp" target="_blank">кυяσσ</a> !! it's my second acc! haha yeah... just that, have a nice day, adios!!
