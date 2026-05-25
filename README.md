@@ -30,4 +30,4 @@ So... my apologize, not to be rude or something, but better we don't interact fo
 
 Hey, if u want to know more.. maybe u can read my strawpage, hohoho! and yeah i almost forgot, i love Friede from Pokemon Horizons haha yeah... alr just that, have a nice day, adios!!
 
-$\color{#ce5050}{︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶}$
+$\color{#e5b76d}{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$
