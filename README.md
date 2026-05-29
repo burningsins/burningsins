@@ -8,6 +8,6 @@
 
  . . .
 
- .𖥔 ܁ ˖ [⌗𝐚𝐭𝐚𝐛𝐨𝐨𝐤](avviero.atabook.org)
+ .𖥔 ܁ ˖ [⌗𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://avviero.atabook.org)
  
  .𖥔 ܁ ˖ [⌗𝐬𝐨𝐜𝐢𝐚𝐥𝐬](https://guns.lol/zavierro)
