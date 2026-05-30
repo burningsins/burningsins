@@ -4,7 +4,9 @@
 
 ⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔
 
-``read ma strawpage before int`` ˙𐃷˙
+• ``c+h freely, often afk so w2i. Anyway, just call me aver/nia. But any nicknames r ok.``
+
+• ``read ma strawpage before int`` ˙𐃷˙
 
  . . .
  
