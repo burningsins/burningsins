@@ -9,7 +9,7 @@
 
 • ``read ma strawpage before int tyy`` ˙𐃷˙
  
- .𖥔 ܁ ˖ [𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://avveriorio.straw.page)
+ .𖥔 ܁ ˖ [⌗𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://avveriorio.straw.page)
 
  .𖥔 ܁ ˖ [⌗𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://avviero.atabook.org)
  
