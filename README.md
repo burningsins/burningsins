@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zavierro&color=7d581f)
+![](https://komarev.com/ghpvc/?username=zavierro&color=E86811)
 
 <p align="center">𝚒𝚗𝚝/𝚌𝚞𝚍𝚍𝚕𝚎𝚜 𝚏𝚛𝚎𝚎𝚕𝚢, 𝚘𝚏𝚝𝚎𝚗 𝚊𝚏𝚔 𝚠2𝚒
 
