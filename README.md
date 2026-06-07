@@ -8,10 +8,15 @@
 <p align="center">. . 𖥔 ܁ ˖ 
 
  
-[![you shit](https://imagetourl.cloud/y07169gg.png)](https://averiorio.straw.page)
+<div align="center">
+    <a href="https://avveriorio.straw.page">𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎</a>
+</div>
 
-[![hope your bed is always hard](https://imagetourl.cloud/lz5tayf8.png)](https://avviero.atabook.org) 
+<div align="center"> <a href="https://avviero.atabook.org">𝚊𝚝𝚊𝚋𝚘𝚘𝚔</a>
+</div>
 
-[![ok wtv](https://imagetourl.cloud/cyrv352s.png)](https://guns.lol/zavierro)
+<div align="center"> <a href="https://guns.lol/zavierro">𝚜𝚘𝚌𝚒𝚊𝚕𝚜</a>
+</div>
+.
 
 <p align="center">. . 𖥔 ܁ ˖ 
