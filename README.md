@@ -1,8 +1,11 @@
-![](https://komarev.com/ghpvc/?username=zavierro&color=E86811)
+
+
+![](https://komarev.com/ghpvc/?username=zavierro&color=dedede)
+
+
+![](https://imagetourl.cloud/1r43fj9x.png)
 
 <p align="center">𝚒𝚗𝚝/𝚌𝚞𝚍𝚍𝚕𝚎𝚜 𝚏𝚛𝚎𝚎𝚕𝚢, 𝚘𝚏𝚝𝚎𝚗 𝚊𝚏𝚔 𝚠2𝚒
-
-![](https://imagetourl.cloud/olwf7axr.jpg)
 
 
 <p align="center">✦　　　.　　° 　 　.　　　　　 . 𖥔  ˖ 
@@ -20,3 +23,5 @@
 .
 
 <p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
+
+![](https://imagetourl.cloud/t77nuej4.png)
