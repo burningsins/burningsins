@@ -1,12 +1,11 @@
+![](https://komarev.com/ghpvc/?username=zavierro&color=FF8223)
 
 
-![](https://komarev.com/ghpvc/?username=zavierro&color=dedede)
+![](https://imagetourl.cloud/0e2ckbxj.png)
 
+<p align="center">゛𝙸𝚏 𝚊𝚕𝚕 𝚢𝚘𝚞 𝚎𝚟𝚎𝚛 𝚍𝚘 𝚒𝚜 𝚕𝚘𝚘𝚔 𝚍𝚘𝚠𝚗 𝚘𝚗 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚢𝚘𝚞 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚊𝚋𝚕𝚎 𝚝𝚘 𝚛𝚎𝚌𝚘𝚐𝚗𝚒𝚣𝚎 𝚢𝚘𝚞𝚛 𝚘𝚠𝚗 𝚠𝚎𝚊𝚔𝚗𝚎𝚜𝚜...゛
 
-![](https://imagetourl.cloud/1r43fj9x.png)
-
-<p align="center">𝚒𝚗𝚝/𝚌𝚞𝚍𝚍𝚕𝚎𝚜 𝚏𝚛𝚎𝚎𝚕𝚢, 𝚘𝚏𝚝𝚎𝚗 𝚊𝚏𝚔 𝚠2𝚒
-
+![](https://imagetourl.cloud/s1gh9f3l.png)
 
 <p align="center">✦　　　.　　° 　 　.　　　　　 . 𖥔  ˖ 
 
@@ -23,5 +22,3 @@
 .
 
 <p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
-
-![](https://imagetourl.cloud/t77nuej4.png)
