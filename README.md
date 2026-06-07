@@ -5,7 +5,7 @@
 ![](https://imagetourl.cloud/olwf7axr.jpg)
 
 
-<p align="center">. . 𖥔 ܁ ˖ 
+<p align="center">✦　　　.　　° 　 　.　　　　　 . 𖥔  ˖ 
 
  
 <div align="center">
@@ -19,4 +19,4 @@
 </div>
 .
 
-<p align="center">. . 𖥔 ܁ ˖ 
+<p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
