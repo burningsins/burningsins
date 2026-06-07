@@ -24,4 +24,4 @@
 
 ![](https://imagetourl.cloud/y5owzvfu.png)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffa245&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffbd2e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31rkyurfddptcurlliwkqwil5xt4&redirect=true)
