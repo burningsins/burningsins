@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zavierro&color=FF8223)
+![](https://komarev.com/ghpvc/?username=zavierro&color=B67A4C)
 
 
 ![](https://imagetourl.cloud/0e2ckbxj.png)
