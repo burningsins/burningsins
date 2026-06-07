@@ -3,11 +3,10 @@
 ![](https://imagetourl.cloud/olwf7axr.jpg)
 
 
-.𖥔 ܁ ˖ 
+<p align="center">feel free to cuddles and int but i often afk so w2i
 
- ``feel free to cuddles and int but i often afk so w2i.``
 
- . . .
+<p align="center">. . 𖥔 ܁ ˖ 
 
  
 [``⌗strawpage``](https://avveriorio.straw.page) 
@@ -16,4 +15,4 @@
 
 [``⌗socials``](https://guns.lol/zavierro)
 
-.𖥔 ܁ ˖ 
+<p align="center">. . 𖥔 ܁ ˖ 
