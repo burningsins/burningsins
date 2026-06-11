@@ -7,12 +7,14 @@
 
 <p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&pause=50&color=9CC78C&vCenter=true&repeat=false&width=440&lines=ni+hao+cool+peoples!+sign+my+ata+etc!" alt="Typing SVG" /></a>
+<p align="center">゛𝙺𝚎𝚎𝚙 𝚕𝚘𝚘𝚔𝚒𝚗𝚐 𝚞𝚙… 𝚝𝚑𝚊𝚝'𝚜 𝚝𝚑𝚎 𝚜𝚎𝚌𝚛𝚎𝚝 𝚘𝚏 𝚕𝚒𝚏𝚎..゛
+<p align="center">𝚂𝚗𝚘𝚘𝚙𝚢.
 
 ![](https://imagetourl.cloud/2npytgy9.png)
 
 <p align="center">✦　　　.　　° 　 　.　　　　　 . 𖥔  ˖ 
- 
+
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&pause=50&color=9CC78C&vCenter=true&repeat=false&width=440&lines=ni+hao+cool+peoples!+sign+my+ata+etc!" alt="Typing SVG" /></a>
 
 <div align="center">
     <a href="https://avveriorio.straw.page">𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎</a> <img src="https://imagetourl.cloud/72uup9eo.png" width="40" />
