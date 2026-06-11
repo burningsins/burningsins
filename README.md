@@ -7,7 +7,7 @@
 
 <p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&duration=1500&pause=50&color=9CC78C&vCenter=true&repeat=false&width=440&lines=ni+hao+cool+peoples!+sign+my+ata+etc!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&pause=50&color=9CC78C&vCenter=true&repeat=false&width=440&lines=ni+hao+cool+peoples!+sign+my+ata+etc!" alt="Typing SVG" /></a>
 
 ![](https://imagetourl.cloud/2npytgy9.png)
 
