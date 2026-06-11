@@ -7,7 +7,7 @@
 
 <p align="center">܁  .　　 𖥔 ܁　　　 ˖ 
 
-<p align="center">゛𝙸𝚏 𝚊𝚕𝚕 𝚢𝚘𝚞 𝚎𝚟𝚎𝚛 𝚍𝚘 𝚒𝚜 𝚕𝚘𝚘𝚔 𝚍𝚘𝚠𝚗 𝚘𝚗 𝚙𝚎𝚘𝚙𝚕𝚎, 𝚢𝚘𝚞 𝚠𝚘𝚗'𝚝 𝚋𝚎 𝚊𝚋𝚕𝚎 𝚝𝚘 𝚛𝚎𝚌𝚘𝚐𝚗𝚒𝚣𝚎 𝚢𝚘𝚞𝚛 𝚘𝚠𝚗 𝚠𝚎𝚊𝚔𝚗𝚎𝚜𝚜...゛
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&duration=1500&pause=50&color=9CC78C&vCenter=true&repeat=false&width=440&lines=ni+hao+cool+peoples!+sign+my+ata+etc!" alt="Typing SVG" /></a>
 
 ![](https://imagetourl.cloud/2npytgy9.png)
 
