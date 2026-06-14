@@ -1,4 +1,4 @@
-<p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 
+<p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 .
 
 ![](https://imagetourl.cloud/xhk2gn9w.png)
 
