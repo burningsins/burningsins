@@ -1,10 +1,8 @@
-<div align="center">
-  <font style="color:pink">hi! ѕiɠn mყ αƚα :octocat:</span>
-</div>
+<div align="center">hi! ѕiɠn mყ αƚα :octocat:
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 .
 
-![](https://imagetourl.cloud/kekyxx3n.png)
+![](https://imagetourl.cloud/kqocwv1d.png)
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 
 
