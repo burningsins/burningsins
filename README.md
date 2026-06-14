@@ -1,8 +1,12 @@
+![](https://komarev.com/ghpvc/?username=zavierroboo&color=FAB9E3)
+
+‎ ‎ ‎ 
+
 <div align="center">hi! ѕiɠn mყ αƚα :octocat:
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 .
 
-![](https://imagetourl.cloud/kqocwv1d.png)
+![](https://imagetourl.cloud/wap4t6st.png)
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 
 
