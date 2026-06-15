@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zavierroboo&color=FAB9E3)
+![](https://komarev.com/ghpvc/?username=zavierroboo&color=DCB7E1)
 
 ‎ ‎ ‎ 
 
@@ -6,7 +6,7 @@
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 .
 
-![](https://imagetourl.cloud/wap4t6st.png)
+![](https://imagetourl.cloud/e3xiqkd1.png)
 
 <p align="center">.‎ ‎ ‎ ✦‎ ‎ ‎  ݁˖ ‎ ‎  ࣪⊹ ‎ ‎ ‎ ˚‎ ‎ ‎ ‎  𖥔 
 
