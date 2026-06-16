@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=zavierroboo&color=DCB7E1)
+![alt](https://img.shields.io/badge/ִֶָ𑣲hearts⊹-1945-ffbcdf)
 
 ‎ ‎ ‎ 
 
