@@ -1,4 +1,4 @@
-![alt](https://img.shields.io/badge/ִֶָ𑣲cookies⊹-1945-ffbcdf)
+![alt](https://img.shields.io/badge/ִֶָ𑣲losers⊹-1945-ffbcdf)
 
 ‎ ‎ ‎ 
 
