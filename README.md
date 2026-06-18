@@ -7,6 +7,6 @@
 ‎ 
 <p align="center"><a href="https://guns.lol/zavierro">˗ˏˋ 𝓢𝓸𝓬𝓲𝓪𝓵𝓼 ˎˊ˗</a></p>
 <p align="center"><a href="https://avveriorio.straw.page">˗ˏˋ 𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮 ˎˊ˗</a></p>
-<p align="center"><a href="https://avviero.atabook.org">˗ˏˋ 𝓐𝓽𝓪𝓫𝓸𝓸𝓴 ˎˊ˗</a></p>
+<p align="center"><a href="https://yoveski.atabook.org">˗ˏˋ 𝓐𝓽𝓪𝓫𝓸𝓸𝓴 ˎˊ˗</a></p>
 
 ![](https://imagetourl.cloud/kunmtu3x.png)
