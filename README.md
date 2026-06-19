@@ -4,7 +4,7 @@
 
 <div align="center"> 
 
-$$\color{#AEAD93} \text{𖥔 . 𝓢𝓲𝓰𝓷 𝓶𝔂 𝓪𝓽𝓪 𓍢ִ໋🀦 ˚‎‎}$$
+$$\Large\color{#AEAD93}\text{𖥔 . 𝓢𝓲𝓰𝓷 𝓶𝔂 𝓪𝓽𝓪 𓍢ִ໋🀦 ˚‎‎}$$
 ‎ 
 <p align="center"><a href="https://guns.lol/zavierro">☕︎</a> 
 $$\color{#AEAD93} \text{𝓢𝓸𝓬𝓲𝓪𝓵𝓼𓂃}$$
