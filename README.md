@@ -11,6 +11,6 @@ $$\color{#AEAD93} \text{𝓢𝓸𝓬𝓲𝓪𝓵𝓼𓂃}$$
 <p align="center"><a href="https://avveriorio.straw.page">☕︎</a> 
 $$\color{#AEAD93} \text{𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮𓂃}$$
 <p align="center"><a href="https://yoveski.atabook.org">☕︎</a> 
-$$\color{#AEAD93} \text{𝓐𝓽𝓪𝓫𝓸𝓸𝓴𓂃}$$
+$$\color{#AEAD93} \text{新𝓫𝓸𝓸𝓴𓂃}$$
 
 ![](https://imagetourl.cloud/kunmtu3x.png)
