@@ -8,8 +8,8 @@ $$\Large\color{#AEAD93}\text{𖥔 . 𝓢𝓲𝓰𝓷 𝓶𝔂 𝓪𝓽𝓪 𓍢�
 ‎ 
 <p align="center"><a href="https://guns.lol/zavierro">☕︎</a> 
 $$\color{#AEAD93} \text{𝓢𝓸𝓬𝓲𝓪𝓵𝓼𓂃}$$
-<p align="center"><a href="https://avveriorio.straw.page">☕︎</a> 
-$$\color{#AEAD93} \text{𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮𓂃}$$
+<p align="center"><a href="https://introductionhuho.carrd.co/">☕︎</a> 
+$$\color{#AEAD93} \text{𝓒𝓪𝓻𝓭𓂃}$$
 <p align="center"><a href="https://yoveski.atabook.org">☕︎</a> 
 $$\color{#AEAD93} \text{新𝓫𝓸𝓸𝓴𓂃}$$
 
