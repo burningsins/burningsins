@@ -1,4 +1,4 @@
-![alt](https://img.shields.io/badge/ִֶָ✦‎𝓼𝓾𝓶𝓶𝓸𝓷𝓼⊹-1945-503B22)
+![alt](https://img.shields.io/badge/ִֶָ✦‎⊹-1945-503B22)
 
 ![](https://imagetourl.cloud/nwvoyg8i.png)
 
