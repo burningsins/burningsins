@@ -1,24 +1,27 @@
-<div align="center">
+$$\color{#ABADAC}{\text{.
+　　　　　　*⠀　　⠀  　　　　　⠀✦⠀　
+　　　　　　
+.⠀ °}}$$
 
-![alt](https://img.shields.io/badge/ִֶָ✦‎⊹-1945-503B22)
-
-</div>
+<p align="center"><a href="https://yoveski.atabook.org" target="_blank"><img src="https://www.image2url.com/r2/default/images/1782403778707-bc18a8f9-69e6-442c-a50b-9b7e9db3ebe1.png" width="200"></a></p>
 
 
+![](https://imagetourl.cloud/3b0cnz2b.png)
 
-![](https://imagetourl.cloud/kunmtu3x.png)
+$$\color{#00394D}{\text{ ۟ ིྀ　　ᛝ　　ꕀ ⌢⌢ ⟡}}$$
+$$\color{#055774}{\text{་ ♡　　yoveski   ݂۫ 𓏼 ๋ ࣭ ⭑}}$$
+$$\color{#367B8E}{\text{‿‿  ⋮ she/her ⟡}}$$
+$$\color{#97BCC3}{\text{ꕀ ⸝⸝   minor ‿◞   ྀི}}$$
+$$\color{#ABADAC}{\text{✦•┈๑⋅⋯ ⋯⋅๑┈•✦}}$$ 
 
-![](https://imagetourl.cloud/nwvoyg8i.png)
+![](https://cdn.phototourl.com/free/2026-06-25-40c63dbb-726a-4b21-8b6f-b204732229d8.jpg)
 
-<div align="center"> 
+$$\color{#E1E0DE}{\text{✦•┈๑⋅⋯ ⋯⋅๑┈•✦}}$$
 
-$$\Large\color{#AEAD93}\text{𖥔 . 𝓢𝓲𝓰𝓷 𝓶𝔂 𝓪𝓽𝓪 𓍢ִ໋🀦 ˚‎‎}$$
-‎ 
-<p align="center"><a href="https://guns.lol/zavierro">☕︎</a> 
-$$\color{#AEAD93} \text{𝓢𝓸𝓬𝓲𝓪𝓵𝓼𓂃}$$
-<p align="center"><a href="https://introductionhuho.carrd.co/">☕︎</a> 
-$$\color{#AEAD93} \text{𝓒𝓪𝓻𝓭𓂃}$$
-<p align="center"><a href="https://yoveski.atabook.org">☕︎</a> 
-$$\color{#AEAD93} \text{新𝓫𝓸𝓸𝓴𓂃}$$
-
-![](https://imagetourl.cloud/kunmtu3x.png)
+$$\color{#ABADAC}{\text{,　　　　　　.
+　　　　　　　　　　　　　°
+　　　　　　·⠀　　⠀  　　　　　⠀✦⠀　
+　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦}}$$
+     
