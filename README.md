@@ -9,7 +9,7 @@ $$\color{#ABADAC}{\text{.
 ![](https://imagetourl.cloud/3b0cnz2b.png)
 
 $$\color{#00394D}{\text{ ۟ ིྀ　　ᛝ　　ꕀ ⌢⌢ ⟡}}$$
-$$\color{#055774}{\text{་ ♡　　yoveski   ݂۫ 𓏼 ๋ ࣭ ⭑}}$$
+$$\color{#055774}{\text{་ ♡　　aver   ݂۫ 𓏼 ๋ ࣭ ⭑}}$$
 $$\color{#367B8E}{\text{‿‿  ⋮ she/her ⟡}}$$
 $$\color{#97BCC3}{\text{ꕀ ⸝⸝   minor ‿◞   ྀི}}$$
 $$\color{#ABADAC}{\text{✦•┈๑⋅⋯ ⋯⋅๑┈•✦}}$$ 
