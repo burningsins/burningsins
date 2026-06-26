@@ -1,7 +1,9 @@
-$$\color{#e1e0de}{\text{.
-　　　　　　*⠀　　⠀   ݁ ˖　　　⠀✦⠀　
-　　　　　　
-.⠀ °}}$$
+$$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
+　　　　　　　　　　　　　°
+　　　　　　·⠀　　⠀  　　　𖥔 ݁ ˖⠀　
+　　　　　　*
+.⠀ 　　　　　　　　　　.　　　　　　　　.
+　　　　　✦}}$$
 
 ![](https://imagetourl.cloud/3b0cnz2b.png)
 
@@ -16,7 +18,7 @@ $$\color{#e1e0de}{\text{𖥔.　⟢　𝚌𝚕𝚒𝚌𝚔 𝚝𝚑𝚎 𝚐𝚒
   <a href="https://guns.lol/zavierro" target="_blank"><img src="https://cdn.phototourl.com/free/2026-06-26-8a93116e-b8d4-457a-ab7d-8ababd144f69.gif" width="30" style="vertical-align: middle;"></a>
 </p> 
 
-$$\color{#00394D}{\text{✦• ┈ ๑ ⋅ ⋯ ⋯ ⋅ ๑ ┈ •✦}}$$ 
+$$\color{#00394D}{\text{✦• ┈ ๑ ⋅ ⋯ ⋯ ⋅ ๑ ┈ •✦}}$$
 
 ![](https://cdn.phototourl.com/free/2026-06-25-40c63dbb-726a-4b21-8b6f-b204732229d8.jpg)
 
