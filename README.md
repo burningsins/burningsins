@@ -1,7 +1,7 @@
 $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 　　　　　　　　　　　　　°
 　　　　　　·⠀　　⠀  　　　𖥔 ݁ ˖⠀　
-　　　　　　*
+　　　　　　
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦}}$$
 
@@ -16,13 +16,9 @@ $$\color{#e1e0de}{\text{.　⟢　𝚌𝚕𝚒𝚌𝚔 𝚝𝚑𝚎 𝚐𝚒𝚏
 <p align="left"><a href="https://introductionhuho.carrd.co/" target="_blank"><img src="https://cdn.phototourl.com/free/2026-06-26-2fa3f229-cb6f-4684-a972-7d2577f2d8ad.gif" width="23"></a> $\color{#367B8E}{\text{𐔌   .  ⋮ 𝚌𝚊𝚛𝚍  .ᐟ  ֹ   ₊ ꒱}}`$ .　　　 ݁ ˖　　　 ⋆
 
 <p align="right">
-  $\color{#055774}{\text{𐔌   .  ⋮ 𝚜𝚘𝚌𝚒𝚊𝚕𝚜  .ᐟ  ֹ   ₊ ꒱}}`$ ˖ 𖥔 ݁ 
+  $\color{#055774}{\text{𐔌   .  ⋮ 𝚜𝚘𝚌𝚒𝚊𝚕𝚜  .ᐟ  ֹ   ₊ ꒱}}`$ 
   <a href="https://guns.lol/zavierro" target="_blank"><img src="https://cdn.phototourl.com/free/2026-06-26-8a93116e-b8d4-457a-ab7d-8ababd144f69.gif" width="30" style="vertical-align: middle;"></a>
 </p> 
-
-$$\color{#00394D}{\text{✦• ┈ ๑ ⋅ ⋯ ⋯ ⋅ ๑ ┈ •✦}}$$
-
-![](https://cdn.phototourl.com/member/2026-06-26-382a4d78-10c7-496f-a022-2de9fc9ab60d.jpg)
 
 $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 　　　　　　　　　　　　　°
@@ -30,4 +26,8 @@ $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦}}$$
+
+![](https://imagetourl.cloud/k793b9jf.png)
+
+$$\color{#00394D}{\text{✦• ┈ ๑ ⋅ ⋯ ⋯ ⋅ ๑ ┈ •✦}}$$
      
