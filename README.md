@@ -5,6 +5,8 @@ $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦}}$$
 
+![](https://cdn.phototourl.com/free/2026-06-25-40c63dbb-726a-4b21-8b6f-b204732229d8.jpg)
+
 ![](https://imagetourl.cloud/3b0cnz2b.png)
 
 $$\color{#e1e0de}{\text{.　⟢　𝚌𝚕𝚒𝚌𝚔 𝚝𝚑𝚎 𝚐𝚒𝚏 𝚋𝚎𝚕𝚘𝚠! ⌢ ˎˊ˗}}$$
@@ -20,7 +22,7 @@ $$\color{#e1e0de}{\text{.　⟢　𝚌𝚕𝚒𝚌𝚔 𝚝𝚑𝚎 𝚐𝚒𝚏
 
 $$\color{#00394D}{\text{✦• ┈ ๑ ⋅ ⋯ ⋯ ⋅ ๑ ┈ •✦}}$$
 
-![](https://cdn.phototourl.com/free/2026-06-25-40c63dbb-726a-4b21-8b6f-b204732229d8.jpg)
+![](https://cdn.phototourl.com/member/2026-06-26-382a4d78-10c7-496f-a022-2de9fc9ab60d.jpg)
 
 $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 　　　　　　　　　　　　　°
