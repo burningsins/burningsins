@@ -20,7 +20,7 @@ $$\color{#e1e0de}{\text{.　⟢ 𝐜𝐥𝐢𝐜𝐤 𝐭𝐡𝐞 𝐠𝐢𝐟 �
 
 <p align="right">
   $\color{#055774}{\text{𐔌   .  ⋮ 𝐬𝐨𝐜𝐢𝐚𝐥𝐬  .ᐟ  ֹ   ₊ ꒱}}`$ 
-  <a href="https://guns.lol/zavierro" target="_blank"><img src="https://cdn.phototourl.com/free/2026-06-26-8a93116e-b8d4-457a-ab7d-8ababd144f69.gif" width="30" style="vertical-align: middle;"></a>
+  <a href="https://guns.lol/zavierro" target="_blank"><img src="https://imagetourl.cloud/cwvusw9a.gif" width="30" style="vertical-align: middle;"></a>
 </p> 
 
 $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
