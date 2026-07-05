@@ -11,7 +11,7 @@ $$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
 
 ![](https://imagetourl.cloud/3b0cnz2b.png)
 
-$$\color{#e1e0de}{\text{.　⟢ 𝐜𝐥𝐢𝐜𝐤 𝐭𝐡𝐞 𝐠𝐢𝐟 𝐛𝐞𝐥𝐨𝐰! ⌢ ˎˊ˗}}$$
+$$\color{#e1e0de}{\text{.　⟢ 𝐜𝐥𝐢𝐜𝐤 𝐭𝐡𝐞 𝐠𝐢𝐟 𝐛𝐞𝐥𝐨𝐰 ⌢ ˎˊ˗}}$$
 
 <p align="left"><a href="https://introductionhuho.carrd.co/" target="_blank"><img src="https://imagetourl.cloud/5kk6zlc9.gif" width="23"></a> $\color{#97Bcc3}{\text{𐔌   .  ⋮ 𝐜𝐚𝐫𝐝  .ᐟ  ֹ   ₊ ꒱}}`$ .　　　 ݁ ˖　　　 ⋆
 
@@ -23,14 +23,9 @@ $$\color{#e1e0de}{\text{.　⟢ 𝐜𝐥𝐢𝐜𝐤 𝐭𝐡𝐞 𝐠𝐢𝐟 �
   <a href="https://guns.lol/yove" target="_blank"><img src="https://imagetourl.cloud/cwvusw9a.gif" width="30" style="vertical-align: middle;"></a>
 </p> 
 
-$$\color{#e1e0de}{\text{ ݁ ˖　　　　　　.
-　　　　　　　　　　　　　°
-　　　　　　·⠀　　⠀  　　　𖥔 ݁ ˖⠀　
-　　　　　　*
-.⠀ 　　　　　　　　　　.　　　　　　　　.
-　　　　　✦}}$$
+$$\color{#e1e0de}{\text{ ݁ ˖　꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭  ︶꒷꒦꒷ ⭑}}$$
 
-![](https://imagetourl.cloud/k793b9jf.png)
+![](https://imagetourl.cloud/q0k5up3f.jpg)
 
-$$\color{#00394D}{\text{✦ • 𝐈 𝐭𝐨𝐥𝐝 𝐲𝐨𝐮 𝐚 𝐥𝐢𝐞, 𝐝é𝐬𝐨𝐥é, 𝐦𝐨𝐧 𝐚𝐦𝐨𝐮𝐫 • ✦}}$$
+$${\color{#367B8E}✦ • \space 𝐈 \space 𝐭𝐨𝐥𝐝 \space 𝐲𝐨𝐮 \space 𝐚 \space 𝐥𝐢𝐞, 𝐝é𝐬𝐨𝐥é, 𝐦𝐨𝐧 \space 𝐚𝐦𝐨𝐮𝐫 • ✦}$$
      
