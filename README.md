@@ -14,5 +14,5 @@
 <p align="center">
   <a href="https://yoveski.atabook.org">𝘼𝙏𝘼𝘽𝙊𝙊𝙆</a> &bull; 
   <a href="https://discord.gg/2zdwwfPk">𝘿𝙄𝙎𝘾𝙊𝙍𝘿</a> &bull; 
-  <a href="https://introductionhuho.carrd.co">𝘾𝘼𝙍𝘿</a>
+  <a href="https://imsolazytomakethis.straw.page/">𝙎𝙏𝙍𝘼𝙒𝙋𝘼𝙂𝙀 </a>
 </p>
