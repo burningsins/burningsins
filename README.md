@@ -9,7 +9,7 @@
   <img src="https://imagetourl.cloud/jb0fcu8p.png" width="600" alt="Command Center Dashboard">
 </p>
 
-![](https://imagetourl.cloud/ggrw3s4e.png)
+[![yoo dont click](https://imagetourl.cloud/ggrw3s4e.png)](https://heroaca.com/character/chara_group05/05-26/)
 
 <p align="center">
   <a href="https://yoveski.atabook.org">𝘼𝙏𝘼𝘽𝙊𝙊𝙆</a> &bull; 
