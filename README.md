@@ -16,5 +16,3 @@
   <a href="https://discord.gg/2zdwwfPk">𝘿𝙄𝙎𝘾𝙊𝙍𝘿</a> &bull; 
   <a href="https://imsolazytomakethis.straw.page/">𝙎𝙏𝙍𝘼𝙒𝙋𝘼𝙂𝙀 </a>
 </p>
-
-<p align="center">𝔱𝔥𝔢𝔯𝔢'𝔰 𝔥𝔦𝔡𝔡𝔢𝔫 𝔥𝔞𝔴𝔨𝔰 𝔥𝔢𝔯𝔢
