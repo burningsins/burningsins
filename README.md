@@ -13,6 +13,7 @@
 | ${{\color{#54287B} "𝐢}}$ ${{\color{#683A7E} 𝐰𝐚𝐧𝐭}}$ ${{\color{#774880} 𝐭𝐨}}$ ${{\color{#946485} 𝐦𝐚𝐤𝐞}}$ ${{\color{#B9878A} 𝐚 \space 𝐰𝐨𝐫𝐥𝐝}}$ ${{\color{#CB988D} 𝐰𝐡𝐞𝐫𝐞}}$ ${{\color{#D29E8E} 𝐡𝐞𝐫𝐨𝐞𝐬}}$ ${{\color{#D9A48E} 𝐡𝐚𝐯𝐞}}$ ${{\color{#E3AF90} 𝐭𝐢𝐦𝐞}}$ ${{\color{#F3BD9F} 𝐭𝐨}}$ ${{\color{#FDCDB9} 𝐤𝐢𝐥𝐥"}}$ |
 | :--- |
 
+<p align=center> ${\textsf{\color{#774880}𑣲⋆}}$‎ ${\textsf{\color{#B9878A}𝐭𝐲𝐬𝐦}}$ ${\textsf{\color{#D29E8E}𝐢𝐥𝐲}}$ <a href="https://github.com/pt-walk-of-fame/">𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞!</a>
 
 <p align="center">
   <a href="https://yoveski.atabook.org">⋆ 𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a> &bull; 
@@ -23,6 +24,4 @@
 <p align="center">
   <img src="https://imagetourl.cloud/lmuo2dgg.gif" width="100" alt="Command Center Dashboard">
 </p>
-
-<p align=center> ${\textsf{\color{#774880}𑣲⋆}}$‎ ${\textsf{\color{#B9878A}𝐭𝐲𝐬𝐦}}$ ${\textsf{\color{#D29E8E}𝐢𝐥𝐲}}$ <a href="https://github.com/pt-walk-of-fame/">𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞!</a>
 ‎
