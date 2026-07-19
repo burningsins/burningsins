@@ -23,3 +23,6 @@
 <p align="center">
   <img src="https://imagetourl.cloud/lmuo2dgg.gif" width="100" alt="Command Center Dashboard">
 </p>
+
+<p align=center> ${\textsf{\color{#774880}𑣲⋆}}$‎ ${\textsf{\color{#B9878A}𝐭𝐲𝐬𝐦}}$ ${\textsf{\color{#D29E8E}𝐢𝐥𝐲}}$ <a href="https://github.com/pt-walk-of-fame/">𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞!</a>
+‎
