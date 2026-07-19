@@ -22,6 +22,10 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 <p align=center> ${\textsf{\color{#946485}𝐜𝐫𝐞𝐝𝐢𝐭}}$ <a href="https://id.pinterest.com/heurisyne/">✿</a>
 
+<p align="center">
+  <img src="https://imagetourl.cloud/izoav31e.png" width="67" height="67" alt="minihawks">
+</p>
+
 <table>
   <tr>
     <td>
