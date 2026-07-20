@@ -34,7 +34,7 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
       </a>
     </td>
     <td>
-      <a href="https://discord.gg/2zdwwfPk">
+      <a href="https://guns.lol/yove">
         <img src="https://cdn.phototourl.com/free/2026-07-20-5502dbb6-7868-43cf-b4b4-ccc4b7e6e963.png" width="200" alt="2">
       </a>
     </td>
