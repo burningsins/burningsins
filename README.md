@@ -52,6 +52,16 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 ![](https://imagetourl.cloud/aywio057.png)
 
-<p align=center> ${\textsf{\color{#FDCDB9} ‎⊹ㅤ ࣪ ㅤ ๋࣭ ㅤ⭑⚝}}$
+<div align="center">
+<details>
+  <summary><img src="https://imagetourl.cloud/3ko7uhtf.gif" width="89" /></summary>
+  <br>
+  <img src="https://imagetourl.cloud/eypgwnhh.jpg" width="180" />
+
+  me and 
+  <a href="https://github.com/soomiboo">soomip :P</a>
+  
+</details>
+</div>
 
 ![](https://imagetourl.cloud/66f5moxf.png)
