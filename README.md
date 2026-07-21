@@ -52,6 +52,6 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 ![](https://imagetourl.cloud/aywio057.png)
 
-<p align=center> ${\textsf{\color{#FDCDB9} (— —)。゜zｚＺ}}$
+<p align=center> ${\textsf{\color{#FDCDB9} ‎⊹ㅤ ࣪ ㅤ ๋࣭ ㅤ⭑⚝}}$
 
 ![](https://imagetourl.cloud/66f5moxf.png)
