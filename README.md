@@ -56,7 +56,7 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
   <br>
   
   <img src="https://imagetourl.cloud/eypgwnhh.jpg" width="180" />
-  <img src="https://imagetourl.cloud/3ojfh2dt.jpg" width="180" />
+  <img src="https://imagetourl.cloud/ogct0shp.jpg" width="180" />
 
   my beloved chudlings
   
