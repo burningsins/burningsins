@@ -1,4 +1,4 @@
-![](https://imagetourl.cloud/473gzo4r.png)
+![](https://imagetourl.cloud/p2ctw1q6.png)
 
 <div align="center">
 
@@ -9,21 +9,14 @@
 
 
 
-<p align=center> ${\textsf{\color{#774880}   ̣̣  ꒰ 𝐜+𝐡}}$‎ ${\textsf{\color{#B9878A}𝐚𝐥𝐰𝐚𝐲𝐬ㅤ}}$ ${\textsf{\color{#D29E8E}𝐢 𝐦𝐨𝐬𝐭𝐥𝐲}}$ ${\textsf{\color{#E3AF90}𝐚𝐟𝐤 ⸝⸝}}$ ${\textsf{\color{#F3BD9F}𝐰2𝐢 ꒱ 𓏼✚}}$
+| ${\textsf{\color{#774880}   ̣̣  ꒰ 𝐜+𝐡}}$‎ ${\textsf{\color{#B9878A}𝐚𝐥𝐰𝐚𝐲𝐬ㅤ}}$ ${\textsf{\color{#D29E8E}𝐢 𝐦𝐨𝐬𝐭𝐥𝐲}}$ ${\textsf{\color{#E3AF90}𝐚𝐟𝐤 ⸝⸝}}$ ${\textsf{\color{#F3BD9F}𝐰2𝐢 ꒱ 𓏼✚}}$ |
+| :--- |
 
 $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
-![](https://imagetourl.cloud/g3jpm8e0.png)
-
-| ${{\color{#54287B} 𐔌 ۫ ׅ゛𝐢}}$ ${{\color{#683A7E} 𝐰𝐚𝐧𝐭}}$ ${{\color{#774880} 𝐭𝐨}}$ ${{\color{#946485} 𝐦𝐚𝐤𝐞}}$ ${{\color{#B9878A} 𝐚 \space 𝐰𝐨𝐫𝐥𝐝}}$ ${{\color{#CB988D} 𝐰𝐡𝐞𝐫𝐞}}$ ${{\color{#D29E8E} 𝐡𝐞𝐫𝐨𝐞𝐬}}$ ${{\color{#D9A48E} 𝐡𝐚𝐯𝐞}}$ ${{\color{#E3AF90} 𝐭𝐢𝐦𝐞}}$ ${{\color{#F3BD9F} 𝐭𝐨}}$ ${{\color{#FDCDB9} 𝐤𝐢𝐥𝐥゛ ⏖}}$ |
-| :--- |
+![](https://cdn.phototourl.com/free/2026-08-01-ca2438d2-825e-4418-8697-b952d033f942.png)
 
 <p align=center> ${\textsf{\color{#774880}ꕀ 𝐭𝐡𝐚𝐧𝐤}}$‎ ${\textsf{\color{#B9878A}𝐲𝐨𝐮}}$ ${\textsf{\color{#D29E8E}ㅤ𝐢𝐥𝐲}}$ <a href="https://github.com/pt-walk-of-fame/">𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞 . 𖹭</a>
-
-<p align="center">
-  <img src="https://imagetourl.cloud/izoav31e.png" width="67" height="67" alt="minihawks">
-</p>
-
 <table>
   <tr>
     <td>
@@ -46,10 +39,6 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 <p align=center> ${\textsf{\color{#774880} ︵  𝐚𝐭𝐚𝐛𝐨𝐨𝐤}}$‎ ${\textsf{\color{#946485} ㅤㅤ ⨾ 𝐠𝐮𝐧𝐬.𝐥𝐨𝐥}}$ ${\textsf{\color{#B9878A}ㅤㅤㅤ𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞₊}}$
 
-![](https://imagetourl.cloud/p2ctw1q6.png)
-
-![](https://imagetourl.cloud/aywio057.png)
-
 <div align="center">
 <details>
   <summary><img src="https://imagetourl.cloud/3ko7uhtf.gif" width="89" /></summary>
@@ -58,9 +47,9 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
   <img src="https://imagetourl.cloud/eypgwnhh.jpg" width="180" />
   <img src="https://imagetourl.cloud/ogct0shp.jpg" width="180" />
 
-  my beloved chudlings
+  chudlings
   
 </details>
 </div>
 
-![](https://imagetourl.cloud/66f5moxf.png)
+![](https://imagetourl.cloud/p2ctw1q6.png)
