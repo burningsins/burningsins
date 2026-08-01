@@ -38,18 +38,15 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 </table>
 
 <p align=center> ${\textsf{\color{#774880} ︵  𝐚𝐭𝐚𝐛𝐨𝐨𝐤}}$‎ ${\textsf{\color{#946485} ㅤㅤ ⨾ 𝐠𝐮𝐧𝐬.𝐥𝐨𝐥}}$ ${\textsf{\color{#B9878A}ㅤㅤㅤ𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞₊}}$
+    
+  </a>
+  </details>
 
-<div align="center">
 <details>
   <summary><img src="https://imagetourl.cloud/3ko7uhtf.gif" width="89" /></summary>
-  <br>
-  
-  <img src="https://imagetourl.cloud/eypgwnhh.jpg" width="180" />
-  <img src="https://imagetourl.cloud/ogct0shp.jpg" width="180" />
-
-  chudlings
-  
+    <br>
+  <a href="https://github.com/soomiboo"><img src="https://imagetourl.cloud/eypgwnhh.jpg" width="45%" alt="click pic to see the shoko person"></a>
+  <a href="https://github.com/Asphyxixate"><img src="https://imagetourl.cloud/ogct0shp.jpg" width="45%" alt="click pic to see the kaneki person"></a>
 </details>
-</div>
 
 ![](https://imagetourl.cloud/p2ctw1q6.png)
