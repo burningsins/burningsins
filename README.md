@@ -16,8 +16,6 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 ![](https://cdn.phototourl.com/free/2026-08-01-7c2168e7-edb4-4d87-8955-b865b9cca60d.png)
 
-<p align=center> ${\textsf{\color{#774880}ꕀ 𝐭𝐡𝐚𝐧𝐤}}$‎ ${\textsf{\color{#B9878A}𝐲𝐨𝐮}}$  <a href="https://github.com/pt-walk-of-fame/">𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞 .</a> <a href="https://github.com/pt-hall-of-media">𝐩𝐭 𝐡𝐚𝐥𝐥 𝐨𝐟 𝐦𝐞𝐝𝐢𝐚</a> ${\textsf{\color{#D29E8E}ㅤ𝐢𝐥𝐲 𖹭}}$
-
 
 <table>
   <tr>
