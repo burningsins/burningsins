@@ -16,6 +16,8 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
 
 ![](https://cdn.phototourl.com/free/2026-08-01-7c2168e7-edb4-4d87-8955-b865b9cca60d.png)
 
+<div align="center">
+
 
 <table>
   <tr>
@@ -47,6 +49,11 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
     <br>
   <a href="https://github.com/soomiboo"><img src="https://imagetourl.cloud/eypgwnhh.jpg" width="45%" alt="click pic to see the shoko person"></a>
   <a href="https://github.com/Asphyxixate"><img src="https://imagetourl.cloud/ogct0shp.jpg" width="45%" alt="click pic to see the kaneki person"></a>
+  also thank you to... ^_^
+  
+  * [pt walk of fame](https://github.com/pt-walk-of-fame)
+  * [pt hall of media](https://github.com/pt-hall-of-media)
+  * [pt nominations](https://github.com/pt-nominations)
 </details>
 
 ![](https://imagetourl.cloud/p2ctw1q6.png)
