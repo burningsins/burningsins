@@ -12,9 +12,11 @@
 | ${\textsf{\color{#774880}   ̣̣  ꒰ 𝐜+𝐡}}$‎ ${\textsf{\color{#B9878A}𝐚𝐥𝐰𝐚𝐲𝐬ㅤ}}$ ${\textsf{\color{#D29E8E}𝐢 𝐦𝐨𝐬𝐭𝐥𝐲}}$ ${\textsf{\color{#E3AF90}𝐚𝐟𝐤 ⸝⸝}}$ ${\textsf{\color{#F3BD9F}𝐰2𝐢 ꒱ 𓏼✚}}$ |
 | :--- |
 
-$${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
+$${{\color{#FDCDB9} ꒷꒦︶⠀ ๋ ࣭ 🃜 🃚 🃖 🃁 🂭 🂺 ⭑ ︶꒷꒦}}$$‎
 
 ![](https://cdn.phototourl.com/free/2026-08-01-7c2168e7-edb4-4d87-8955-b865b9cca60d.png)
+
+$${{\color{#FDCDB9} ꒷꒦︶⠀ ๋ ࣭ 🃜 🃚 🃖 🃁 🂭 🂺 ⭑ ︶꒷꒦}}$$‎
 
 <div align="center">
 
@@ -49,11 +51,11 @@ $${{\color{#FDCDB9} ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦}}$$‎
     <br>
   <a href="https://github.com/soomiboo"><img src="https://imagetourl.cloud/eypgwnhh.jpg" width="45%" alt="click pic to see the shoko person"></a>
   <a href="https://github.com/Asphyxixate"><img src="https://imagetourl.cloud/ogct0shp.jpg" width="45%" alt="click pic to see the kaneki person"></a>
-  also thank you to... ^_^
+  ${\textsf{\color{#946485}  .⠀◡◡⠀ 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐬𝐨 𝐦𝐮𝐜𝐡!! ↓}}$‎
   
-  * [pt walk of fame](https://github.com/pt-walk-of-fame)
-  * [pt hall of media](https://github.com/pt-hall-of-media)
-  * [pt nominations](https://github.com/pt-nominations)
+   [𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞](https://github.com/pt-walk-of-fame)
+   ⠀[𝐩𝐭 𝐡𝐚𝐥𝐥 𝐨𝐟 𝐦𝐞𝐝𝐢𝐚](https://github.com/pt-hall-of-media)
+  ⠀[𝐩𝐭 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬](https://github.com/pt-nominations)
 </details>
 
 ![](https://imagetourl.cloud/p2ctw1q6.png)
