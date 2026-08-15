@@ -56,6 +56,7 @@ $${{\color{#FDCDB9} ꒷꒦︶⠀ ๋ ࣭ 🃜 🃚 🃖 🃁 🂭 🂺 ⭑ ︶�
    [𝐩𝐭 𝐰𝐚𝐥𝐤 𝐨𝐟 𝐟𝐚𝐦𝐞](https://github.com/pt-walk-of-fame)
    ⠀[𝐩𝐭 𝐡𝐚𝐥𝐥 𝐨𝐟 𝐦𝐞𝐝𝐢𝐚](https://github.com/pt-hall-of-media)
   ⠀[𝐩𝐭 𝐧𝐨𝐦𝐢𝐧𝐚𝐭𝐢𝐨𝐧𝐬](https://github.com/pt-nominations)
+  [𝐜𝐨𝐬𝐩𝐥𝐚𝐲 𝐭𝐨𝐰𝐧](https://github.com/cosplaytown)
 </details>
 
 ![](https://imagetourl.cloud/p2ctw1q6.png)
