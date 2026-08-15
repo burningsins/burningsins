@@ -15,9 +15,7 @@
 <p align="center">
 <div align="center">
 
-![](https://cdn.phototourl.com/member/2026-08-15-945d04af-cef3-45c1-9caa-8df89b762a10.png)
-
-${\textsf{\color{#774880}  𝗰⭒𝗵}}$‎ ${\textsf{\color{#B9878A}𝗮𝗹𝘄𝗮𝘆𝘀ㅤ}}$ ${\textsf{\color{#D29E8E}𝗶 𝗺𝗼𝘀𝘁𝗹𝘆}}$ ${\textsf{\color{#E3AF90}𝗮𝗳𝗸 ,,}}$ ${\textsf{\color{#F3BD9F}𝘄2𝗶 𓏼}}$ 
+${\textsf{\color{#774880}  𝗰⭒h}}$‎ ${\textsf{\color{#B9878A}𝗮l𝘄α𝘆sㅤ}}$ ${\textsf{\color{#D29E8E}𝗶 mσ𝘀t𝗹y}}$ ${\textsf{\color{#E3AF90}𝗮fƙ ,,}}$ ${\textsf{\color{#F3BD9F}𝘄2i 𓏼}}$ 
 
 <div align="center">
 
@@ -42,7 +40,7 @@ ${\textsf{\color{#774880}  𝗰⭒𝗵}}$‎ ${\textsf{\color{#B9878A}𝗮𝗹�
   </tr>
 </table>
 
-<p align=center> ${\textsf{\color{#471C7A} 𝗮𝘁𝗮𝗯𝗼𝗼𝗸}}$‎ ${\textsf{\color{#774880}   ㅤ  ㅤ    𝗱𝗶𝘀𝗰𝗼𝗿𝗱}}$ ${\textsf{\color{#7E4E81}ㅤㅤㅤ𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲₊}}$
+<p align=center> ${\textsf{\color{#471C7A} 𝗮𝘁a𝗯𝗼o𝗸}}$‎ ${\textsf{\color{#774880}   ㅤ  ㅤ    𝗱i𝘀𝗰o𝗿𝗱}}$ ${\textsf{\color{#7E4E81}ㅤㅤㅤ𝘀𝘁𝗿a𝘄p𝗮g𝗲₊}}$
     
   </a>
   </details>
@@ -51,10 +49,10 @@ ${\textsf{\color{#774880}  𝗰⭒𝗵}}$‎ ${\textsf{\color{#B9878A}𝗮𝗹�
   <summary><img src="https://www.image2url.com/r2/default/images/1786808798093-8ebf29f1-b9e1-4a08-a43e-135aaf29559c.png" width="67" /></summary>
     <br>
   
-  ${\textsf{\color{#946485}⠀◡◡⠀ 𝘁𝗵𝗮𝗻𝗸 𝘆𝗼𝘂 𝘀𝗼 𝗺𝘂𝗰𝗵  <3}}$‎
+  ${\textsf{\color{#946485}⠀◡◡⠀ 𝘁𝗵a𝗻k 𝘆o𝘂 𝘀o 𝗺u𝗰𝗵  <3}}$‎
   
-   [𝗽𝘁 𝘄𝗮𝗹𝗸 𝗼𝗳 𝗳𝗮𝗺𝗲](https://github.com/pt-walk-of-fame)
-   ⠀[𝗽𝘁 𝗵𝗮𝗹𝗹 𝗼𝗳 𝗺𝗲𝗱𝗶𝗮](https://github.com/pt-hall-of-media)
-  ⠀[𝗽𝘁 𝗻𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻𝘀](https://github.com/pt-nominations)  ⠀
-  [𝗰𝗼𝘀𝗽𝗹𝗮𝘆 𝘁𝗼𝘄𝗻](https://github.com/cosplaytown)
+   [p𝘁 𝘄a𝗹𝗸 o𝗳 𝗳a𝗺e](https://github.com/pt-walk-of-fame)
+   ⠀[𝗽t 𝗵a𝗹𝗹 o𝗳 𝗺e𝗱𝗶a](https://github.com/pt-hall-of-media)
+  ⠀[𝗽t 𝗻o𝗺i𝗻𝗮𝘁i𝗼n𝘀](https://github.com/pt-nominations)  ⠀
+  [𝗰o𝘀𝗽𝗹a𝘆 𝘁o𝘄𝗻](https://github.com/cosplaytown)
 </details>
