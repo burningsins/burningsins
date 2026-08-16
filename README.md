@@ -17,8 +17,8 @@ ${\textsf{\color{#F3BD9F}░░░░░░░░░𒅒░░░░░░░░
 ${\textsf{\color{#774880}  𝗰⭒h}}$‎ ${\textsf{\color{#B9878A}𝗮l𝘄𝗮𝘆sㅤ}}$ ${\textsf{\color{#D29E8E}𝗶 𝗺o𝘀t𝗹𝘆}}$ ${\textsf{\color{#E3AF90}𝗮𝗳k ,,}}$ ${\textsf{\color{#F3BD9F}𝘄2𝗶 𓏼}}$ 
 
 <p align="center">
-  <a href="https://yoveski.atabook.org/">𝗮𝘁a𝗯𝗼o𝗸</a> ${\textsf{\color{#946485}░}}$
-  <a href="https://guns.lol/yove">𝗱𝗶𝘀𝗰o𝗿𝗱</a> ${\textsf{\color{#946485}░}}$ 
+  <a href="https://yoveski.atabook.org/">𝗮𝘁a𝗯𝗼o𝗸</a> ${\textsf{\color{#946485}༝}}$
+  <a href="https://guns.lol/yove">𝗱𝗶𝘀𝗰o𝗿𝗱</a> ${\textsf{\color{#946485}༝}}$ 
   <a href="https://imsolazytomakethis.straw.page">𝘀𝘁𝗿a𝘄𝗽𝗮g𝗲</a>
 </p>
 
