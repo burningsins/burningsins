@@ -2,7 +2,7 @@
 
 ![Visitors](https://api.visitorbadge.io/api/combined?path=https%3A%2F%2Fgithub.com%2Fburningsins&label=%F0%9D%90%9F%F0%9D%90%9E%F0%9D%90%9A%F0%9D%90%AD%F0%9D%90%A1%F0%9D%90%9E%F0%9D%90%AB%F0%9D%90%AC&labelColor=%234b1f7a&countColor=%23e9b391)
 
-${\textsf{\color{#774880}  ᶜ⭒ʰ}}$‎ ${\textsf{\color{#B9878A}ᵃˡʷᵃʸˢㅤ}}$ ${\textsf{\color{#D29E8E}ᵒᶠᵗᵉⁿ}}$ ${\textsf{\color{#E3AF90}ᵃᶠᵏ}}$ ${\textsf{\color{#F3BD9F}ʷ²ⁱ 𓏼}}$ <a href="https://yoveski.atabook.org/">.✦ ݁˖</a>
+${\textsf{\color{#774880}  ᶜ⭒ʰ}}$‎ ${\textsf{\color{#B9878A}ᵃˡʷᵃʸˢㅤ}}$ ${\textsf{\color{#D29E8E}ᵒᶠᵗᵉⁿ}}$ ${\textsf{\color{#E3AF90}ᵃᶠᵏ}}$ ${\textsf{\color{#F3BD9F}ʷ²ⁱ 𓏼}}$ <a href="https://rentry.co/adalahpokoknha">.✦ ݁˖</a>
 
 
 ![](https://cdn.phototourl.com/free/2026-08-22-b37072e5-bdf7-4015-818c-7d67dde549c7.png)
