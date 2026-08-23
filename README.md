@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=burningsins&style=flat-square&color=D29E8E&label=feathers)
 
-| ![](https://cdn.phototourl.com/member/2026-08-22-811ff301-21b6-4b7d-9e00-1cb9b88d8dfa.png) | ${\textsf{\color{#774880}  ᶜ⭒ʰ}}$‎ ${\textsf{\color{#B9878A}ᵃˡʷᵃʸˢㅤ}}$ ${\textsf{\color{#D29E8E}ᵒᶠᵗᵉⁿ}}$ ${\textsf{\color{#E3AF90}ᵃᶠᵏ}}$ ${\textsf{\color{#F3BD9F}ʷ²ⁱ 𓏼}}$ <a href="https://rentry.co/adalahpokoknha">.✦˖</a> |
+| ![](https://cdn.phototourl.com/member/2026-08-22-811ff301-21b6-4b7d-9e00-1cb9b88d8dfa.png) | ${\textsf{\color{#774880}  ᶜ⭒ʰ}}$‎ ${\textsf{\color{#B9878A}ᵃˡʷᵃʸˢㅤ}}$ ${\textsf{\color{#D29E8E}ᵒᶠᵗᵉⁿ}}$ ${\textsf{\color{#E3AF90}ᵃᶠᵏ}}$ ${\textsf{\color{#F3BD9F}ʷ²ⁱ 𓏼}}$ <a href="https://rentry.co/yayyie">.✦˖</a> |
 | ------- | ------- |
 
 <p align="center">
