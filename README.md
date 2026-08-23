@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=burningsins&color=64A397) <img src="https://cdn.phototourl.com/member/2026-08-23-88d0fa14-6f48-40a2-82ee-6c45022a88eb.png" width="40">
 
-| ![](https://cdn.phototourl.com/member/2026-08-23-453a51ed-6d3f-40e4-b8b7-359ff41a6099.png) | <img src="https://cdn.phototourl.com/free/2026-08-23-cbe9f14c-7fdc-42d0-94d5-69776f3b87a8.png" width="67"> ${\textsf{\color{#497E8E}  ᶜ⭒𝓱}}$‎ ${\textsf{\color{#5C9795}ᵃℓʷᵃʸ𝒔ㅤ}}$ ${\textsf{\color{#79AD9F}ᵒfᵗᵉⁿ}}$ ${\textsf{\color{#AAC4AF}ᵃᶠ𝔨}}$ ${\textsf{\color{#D3D4BE}ʷ²𝓲 𓏼}}$ <a href="https://rentry.co/yayyie">.✦˖</a> |
+| ![](https://cdn.phototourl.com/member/2026-08-23-453a51ed-6d3f-40e4-b8b7-359ff41a6099.png) | <img src="https://cdn.phototourl.com/free/2026-08-23-cbe9f14c-7fdc-42d0-94d5-69776f3b87a8.png" width="67"> ${\textsf{\color{#497E8E}  ᶜ⭒𝓱}}$‎ ${\textsf{\color{#5C9795}ᵃℓʷᵃʸ𝒔ㅤ}}$ ${\textsf{\color{#79AD9F}ᵒfᵗᵉⁿ}}$ ${\textsf{\color{#AAC4AF}ᵃᶠ𝔨}}$ ${\textsf{\color{#D3D4BE}ʷ²𝓲 𓏼}}$ <a href="https://rentry.co/yayyie">⚝</a> |
 | ------- | ------- |
 
 <p align="center">
