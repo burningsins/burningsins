@@ -13,10 +13,11 @@
 <img src="https://www.image2url.com/r2/default/gifs/1787498930044-35176831-e1f6-41ff-9e29-346e5128cd20.gif" width="160">
 
 <p align="center"> <img src="https://cdn.phototourl.com/member/2026-08-23-a1aa14b7-9d62-475c-afe0-3ce1183549bc.png" width="42">
-  <a href="https://github.com/pt-nominations">𝓟</a>${\textsf{\color{#D3D4BE}𝘁 𝗻o𝗺𝗶𝗻a𝘁𝗶o𝗻𝘀}}$
-  <a href="https://github.com/pt-hall-of-media">𝓟</a>${\textsf{\color{#AAC4AF}t 𝗵a𝗹𝗹 o𝗳 𝗺e𝗱𝗶a}}$ 
-  <a href="https://github.com/pt-walk-of-fame">𝓟</a>${\textsf{\color{#79AD9F}𝘁 𝘄a𝗹𝗸 𝗼𝗳 𝗳a𝗺𝗲}}$
-  <a href="https://github.com/cosplaytown">𝓒</a>${\textsf{\color{#5C9795}o𝘀𝗽𝗹a𝘆 𝘁o𝘄𝗻}}$
+  <a href="https://github.com/pt-nominations">𝓟</a>${\textsf{\color{#D3D4BE}𝘁 𝗻o𝗺𝗶𝗻a𝘁𝗶o𝗻𝘀}}$⠀⠀ 
+  <a href="https://github.com/pt-hall-of-media">𝓟</a>${\textsf{\color{#AAC4AF}t 𝗵a𝗹𝗹 o𝗳 𝗺e𝗱𝗶a}}$⠀⠀ ⠀ 
+  <a href="https://github.com/pt-walk-of-fame">𝓟</a>${\textsf{\color{#79AD9F}𝘁 𝘄a𝗹𝗸 𝗼𝗳 𝗳a𝗺𝗲}}$⠀⠀ ⠀ 
+  <a href="https://github.com/cosplaytown">𝓒</a>${\textsf{\color{#5C9795}o𝘀𝗽𝗹a𝘆 𝘁o𝘄𝗻}}$⠀⠀ ⠀ 
+  <a href="https://github.com/pt-heavyfictkin">𝓟</a>${\textsf{\color{#497E8E}𝘁 𝗵e𝗮v𝘆 𝗳i𝗰𝘁𝗸i𝗻}}$
 </p>
 
 ![](https://cdn.phototourl.com/member/2026-08-23-aa09f6cd-861b-4029-85dd-87d06fc0522e.png)
