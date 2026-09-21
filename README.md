@@ -2,7 +2,7 @@
   
 <sub> <a href="https://yoveski.atabook.org"><img src="https://cdn.phototourl.com/member/2026-09-20-46b842fb-ab7f-485e-832e-c447173382af.png" width="54"></a>ata </sub>
 
-![](https://cdn.phototourl.com/member/2026-09-21-272c4e31-c08e-4a59-9d26-8647337687e9.png)
+![](https://cdn.phototourl.com/member/2026-09-21-c2f58e22-4f32-46f2-bb72-1c7824443b61.png)
 
 <img src="https://cdn.phototourl.com/member/2026-09-20-e3f97f52-dd17-4c9c-88fb-417901bf2da8.png" width="74">
 
