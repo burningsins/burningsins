@@ -16,5 +16,6 @@
   <sub><a href="https://github.com/pt-hall-of-media">𝓟</a>t hall of media </sub>
   <sub><a href="https://github.com/pt-walk-of-fame">𝓟</a>t walk of fame </sub>
   <sub><a href="https://github.com/pt-heavyfictkin">𝓟</a>t heavy fictkin </sub>
+    <sub><a href="https://github.com/PT-FANtastic-Hall">𝓟</a>t fantastic hall </sub>
   <sub><a href="https://github.com/cosplaytown">𝓒</a>osplay town </sub>
 </div>
