@@ -1,22 +1,37 @@
 <div align="center">
   
-<sub> <a href="https://accipitridae.atabook.org/"><img src="https://cdn.phototourl.com/member/2026-09-20-46b842fb-ab7f-485e-832e-c447173382af.png" width="54"></a>ata </sub>
+![](https://cdn.phototourl.com/member/2026-09-28-cad54eb2-5bec-4940-b362-2bca85753e11.png)
 
-![](https://cdn.phototourl.com/member/2026-09-21-2ae07b5a-19f9-48a1-9d4c-fcb760973fda.png)
+| $\color{#DBBF98}𓈒⠀what⠀can⠀i⠀say?$ $\color{#F4BF85}ֺּׅi'm⠀optimistic⠀to⠀a$ $\color{#F4A285}fault⠀𓏻$ |
+| :---: |
+
+![](https://cdn.phototourl.com/member/2026-09-28-939a4560-6d00-4085-9ec0-0df1658e0e41.png)
+
+$\color{#F4BF85}ֺּׅ𓏽⠀aver$⠀⠀
+$\color{#F4A285}ᛝ$⠀⠀
+$\color{#EF8584}nia$⠀
+$\color{#78897D}⏖16$⠀⠀
+<a href="https://accipitridae.atabook.org/"><img src="https://cdn.phototourl.com/member/2026-09-28-ea16b59e-3b5f-497c-b0b6-0cbe9cc8f459.webp" width="20" alt="Deskripsi"></a> 
+$\color{#488A7A} atabook$ 
+
+![](https://cdn.phototourl.com/member/2026-09-28-5a1de97b-bed5-49bd-a8fa-f139f62b0f12.png)
+
+
+| <img src="https://cdn.phototourl.com/member/2026-09-28-c15390e7-7ced-4fa0-b216-1e271485a787.png" width="250" alt="tuffboi"> 
+| :---: |
 
 <details>
-  <summary align="center">
-    <img src="https://cdn.phototourl.com/member/2026-09-20-e3f97f52-dd17-4c9c-88fb-417901bf2da8.png" width="75" style="cursor: pointer;">
+  <summary align="center"> <img src="https://cdn.phototourl.com/member/2026-09-28-02bcb02d-4a78-44aa-b10d-83221aaf000e.webp" width="20" alt="Deskripsi"> $\color{#DBBF98}rewards$
   </summary>
-  
-  <p align="center">
-    <sub><a href="https://github.com/pt-nominations">𝓟</a>t nominations </sub>
+  <a href="https://github.com/pt-nominations">𝓟</a>$\color{#F4BF85}t⠀ nominations$ </sub>
   <div align="center">
-  <sub><a href="https://github.com/paw-town">𝓟</a>aw town </sub>
-  <sub><a href="https://github.com/pt-walk-of-fame">𝓟</a>t walk of fame </sub>
-  <sub><a href="https://github.com/pt-heavyfictkin">𝓟</a>t heavy fictkin </sub>
-    <sub><a href="https://github.com/PT-FANtastic-Hall">𝓟</a>t fantastic hall </sub>
-  <sub><a href="https://github.com/cosplaytown">𝓒</a>osplay town </sub> <sub><a href="https://github.com/kaotown">𝓚</a>ao town </sub> </a>
-  </p>
+  <a href="https://github.com/paw-town">𝓟</a>$\color{#F4A285}aw⠀town$ </sub>
+  <a href="https://github.com/pt-walk-of-fame">𝓟</a>$\color{#F49885}t⠀walk⠀of⠀fame$ </sub>
+  <a href="https://github.com/pt-heavyfictkin">𝓟</a>$\color{#EF8584}t⠀heavy⠀fictkin$ </sub>
+    <a href="https://github.com/PT-FANtastic-Hall">𝓟</a>$\color{#AB8880}t⠀fantastic⠀hall$⠀</sub>
+  <a href="https://github.com/cosplaytown">𝓒</a>$\color{#78897D}osplay⠀town$ <a href="https://github.com/kaotown">𝓚</a>$\color{#488A7A}ao⠀town$ </a>
 </details>
 
+$$\color{#F4BF85}゛$$ <a href="https://rentry.co/reddividers">𑄝
+
+![](https://cdn.phototourl.com/member/2026-09-28-f49b51cf-c1a6-476e-940b-2ea2ba5e7cef.png)
