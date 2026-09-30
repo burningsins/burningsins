@@ -13,7 +13,7 @@
 ![](https://cdn.phototourl.com/member/2026-09-28-75cb94cc-3f17-4631-aa9d-5e7f36b94d88.gif)
 
 <details>
-  <summary align="center">  $\color{#AB8880}rewards$⠀<img src="https://cdn.phototourl.com/member/2026-09-28-b71cd7ef-7aff-44ad-9eb4-fe4a157a8885.png" width="45" alt="tuah">
+  <summary align="center">  $\color{#AB8880}𑄝⠀rewards$⠀<img src="https://cdn.phototourl.com/member/2026-09-28-b71cd7ef-7aff-44ad-9eb4-fe4a157a8885.png" width="45" alt="tuah">
   </summary>
   <a href="https://github.com/pt-nominations">𝓟</a>$\color{#F4BF85}t⠀ nominations$ </sub>
   <div align="center">
@@ -23,7 +23,5 @@
     <a href="https://github.com/PT-FANtastic-Hall">𝓟</a>$\color{#AB8880}t⠀fantastic⠀hall$⠀</sub>
   <a href="https://github.com/cosplaytown">𝓒</a>$\color{#78897D}osplay⠀town$ <a href="https://github.com/kaotown">𝓚</a>$\color{#488A7A}ao⠀town$ </a>
 </details>
-
-$$\color{#F4BF85}゛$$ <a href="https://rentry.co/infecteddividers">𑄝
 
 ![](https://cdn.phototourl.com/member/2026-09-28-f49b51cf-c1a6-476e-940b-2ea2ba5e7cef.png)
