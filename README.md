@@ -5,7 +5,7 @@
 
 ![](https://cdn.phototourl.com/member/2026-10-10-800089e7-da34-4392-bb04-9f716e9e2d3e.png)
 
-${\textsf{\color{#D3BB82}✦⠀⠀ ⠀ ⠀⠀ ﹒﹒}}$
+${\textsf{\color{#D3BB82}✦⠀⠀ ⠀ ⠀⠀やあ !}}$
 
 <img src="https://cdn.phototourl.com/member/2026-10-10-3a5c504d-b2ca-4dd4-9ccb-a19b49c253c9.gif" width="20" alt="yum">⠀ ${\textsf{\color{#DE9953}⠀⠀𝓐𝘃er}}$ ${\textsf{\color{#DF784B}⠀ᵒʳ}}$⠀⠀ ${\textsf{\color{#C35248}𝓝𝗶α}}$ 
 
