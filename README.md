@@ -1,7 +1,7 @@
 <div align="center">
 
 👀
-<a href="https://accipitridae.atabook.org">αtα</a> ${\textsf{\color{#DE9953}b𝗼𝗼k}}$ <img src="https://cdn.phototourl.com/member/2026-10-10-77418956-ecc9-4114-8eb7-a6d0239166b4.gif" width="20" alt="yum">
+<a href="https://accipitridae.atabook.org">αtα</a> <a href="https://padlet.com/averrity/zavierro">★</a> ${\textsf{\color{#DE9953}b𝗼𝗼k}}$ <img src="https://cdn.phototourl.com/member/2026-10-10-77418956-ecc9-4114-8eb7-a6d0239166b4.gif" width="20" alt="yum">
 
 ![](https://cdn.phototourl.com/member/2026-10-10-800089e7-da34-4392-bb04-9f716e9e2d3e.png)
 
