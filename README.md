@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://accipitridae.atabook.org">新</a> ${\textsf{\color{#19367A}book}}$ 
+<a href="https://accipitridae.atabook.org">新</a> ${\textsf{\color{#F0FDFE}book}}$ <img src="https://cdn.phototourl.com/member/2026-11-16-162c0335-ba69-416c-8bf2-21d7bab49788.png" width="20" alt="yum">⠀
 
 ![](https://cdn.phototourl.com/member/2026-11-16-212244ca-b011-4bcb-9596-e262275663f0.png)
 
