@@ -9,7 +9,7 @@
  ${\textsf{\color{#D55653}✦⠀ ⠀⠀𝓐𝘃er}}$
 <img src="https://cdn.phototourl.com/member/2026-10-10-3a5c504d-b2ca-4dd4-9ccb-a19b49c253c9.gif" width="20" alt="yum">⠀⠀⠀⠀⠀
 ${\textsf{\color{#A0F2FF}⠀⠀𝓩𝗮vi}}$ ⠀⠀⠀
-${\textsf{\color{#F0FDFE}1𝟲⠀}}$ ${\textsf{\color{#FF833B}𝓝𝗶α}}$
+${\textsf{\color{#F0FDFE}1𝟲⠀}}$ ${\textsf{\color{#A0F2FF}𝓝𝗶α}}$
 
 ${\textsf{\color{#FF833B}⭑⠀𝟭𝟡.𝟘𝟴⠀⠀}}$ ${\textsf{\color{#FAB23F}ᜊ( ' ⩊ '𖦹)ᜊ}}$
 
